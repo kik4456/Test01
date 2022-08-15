@@ -6,5 +6,7 @@ The Industrial Revolution and its consequences have been a disaster to the human
 Do you like jazz?
 ![🅱ee](./jazz.png)
 
+What'dya think of that Mr.Pajama wearing, Basket-face, Slipper wielding, clype deep bachle, gather uping blate maw, blethering gomeril Jessie, Oaf-lookin' schtooner, Nyaff plookie shan, Milk-drinking Soy-face shilpit, Mim-moothed, sniveling worm-eyed hotten blaugh, vile stoochie, cally-breek tattie!
+
 Avarage faria limer be like
 ![Faria limer 😞](./faria%20limer.jpg)

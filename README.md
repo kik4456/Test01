@@ -1,3 +1,7 @@
 # Test01
- Nn sei
+
+Nn sei
 The Industrial Revolution and its consequences have been a disaster to the human race
+
+Do you like jazz?
+![🅱ee](./jazz.png)
